@@ -21,5 +21,5 @@ Passionate Data Analyst focused on transforming raw business data into actionabl
 ---
 
 ## 📬 Connect With Me
-- 💼 **LinkedIn:** [LinkedIn Profile](www.linkedin.com/in/akshay-kumar200400310)
+- 💼 **LinkedIn:** [LinkedIn Profile](https://www.linkedin.com/in/akshay-kumar200400310)
 - 📧 **Email:** boredhaakshay6@gamil.com
